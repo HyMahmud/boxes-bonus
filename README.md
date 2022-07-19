@@ -1,6 +1,6 @@
 # Boxes Bonus
 Server Support Discord 
-https://discord.gg/vBxEqmp92W
+https://discord.gg/RBwjKD4DqZ
 
 <a href="https://imgur.com/RTGi8dN"><img src="https://i.imgur.com/RTGi8dN.png" title="source: imgur.com" /></a>
 <a href="https://imgur.com/WR9zAh9"><img src="https://i.imgur.com/WR9zAh9.png" title="source: imgur.com" /></a>
